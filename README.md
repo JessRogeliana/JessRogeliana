@@ -1,6 +1,6 @@
-## Olá pessoas! Meu nome é Jéssica Rodrigues e sejam bem vindes 💖🤙🌸
+## Olá pessoal! Eu sou Jéssica Rodrigues e sejam bem vindes 💖🤙🌸
 
-- 🌱 Estudante de Programação 
+- 🌱 Aprendendo a programar  
 - 👩‍💻 Ela/Dela
 
 ##
